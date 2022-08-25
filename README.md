@@ -1,4 +1,6 @@
-# Who am I?
+# Bonus Information About Me
+
+## Who am I?
 
 ¡Hi! My name is Elizabeth Andriano, I’m 19 years old and my biggest passion in life is to always learn something new. Since I was a child, I’ve liked to search and learn about my everything that landed into my hands, thus I’ve self-taught several activities such as programming in different languages, as well as hobbies like embroidering, photography, and linoleum carving. After the covid pandemic I decided that I never wanted to stop myself from doing what I love and now I’m part of different student societies associated to my degree or my hobbies.
 
@@ -8,7 +10,7 @@ I personally know how it feels to be the one who is left behind or discriminated
 
 
 
-# Why the program?
+## Why the program?
 
 I got to know about the program thanks to a close friend of mine who was part of the first EGS GLP generation.
 When he told me about his life within the program and the activities he did I could see the comfort and passion with which he narrated them, as well as the excitement that his experiences  in it brought him.
