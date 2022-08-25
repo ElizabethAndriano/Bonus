@@ -1,5 +1,5 @@
 # Bonus
 
-#Quien soy
+# Quien soy
 
-#Por qué el programa
+# Por qué el programa
