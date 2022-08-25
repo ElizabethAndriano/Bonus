@@ -17,3 +17,6 @@ When he told me about his life within the program and the activities he did I co
 
 
 I like to help others and to make my environment better so those who surround me can have the best experience possible. I'm convinced that with time, and the appropiate tools, **everyone can achieve their full potential**, even when they are not aware of it. I believe the best way of being able to support them is by knowing myself and constantly improving, that"s why I want to be part of the Eugenio Garza Sada Global Leadership Program.
+
+
+![](/images/Eli2.jpeg)
