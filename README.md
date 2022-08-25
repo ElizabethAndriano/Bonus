@@ -9,4 +9,8 @@ I personally know how it feels to be the one who is left behind or discriminated
 
 
 
-# Por qué el programa
+# Why the program?
+
+I got to know about the program thanks to a close friend of mine who was part of the first EGS GLP generation.
+When he told me about his life within the program and the activities he did I could see the comfort and passion with which he narrated them, as well as the excitement that his experiences  in it brought him.
+I like to help others and to make my environment better so those who surround me can have the best experience possible. I'm convinced that with time, and the appropiate tools, everyone can achieve their full potential, even when they are not aware of it. I believe the best way of being able to support them is by knowing myself and constantly improving, that"s why I want to be part of the Eugenio Garza Sada Global Leadership Program.
