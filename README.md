@@ -8,7 +8,7 @@
 
 I personally know how it feels to be the one who is left behind or discriminated, since I live with chronic pain, therefore I always look to make everyone feel included in any activity I participate, along with creating safe and accessible spaces where everyone’s voice is heard. I don’t believe that everyone should struggle the same way I did in the past, so I work to eradicate the hardships that I’ve encountered and want to make a positive impact with every person I interact.
 
-
+![](/images/camara.JPG)
 
 ## Why the program?
 
